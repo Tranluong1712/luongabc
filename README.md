@@ -1,6 +1,2 @@
 # luongabcwwwwww22222222222222
-lllllllll
-llllllllliiiihhghghghg
-rrrrrr
-rkorkoktokrottr
-ftftftftftf
+laaaaaa
